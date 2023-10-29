@@ -1,0 +1,1 @@
+# Inversao-e-Limiarizacao-de-imagens
